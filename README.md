@@ -1,3 +1,3 @@
 # domainsale
 xinnengyuan.me出售
-联系jxauyk@126.com
+联系 kingwaving@gmail.com
